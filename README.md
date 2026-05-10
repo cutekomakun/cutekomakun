@@ -1,4 +1,4 @@
-# **Please call me... The Ultimate Hope.**
+# **please call me... The Ultimate Hope.**
 
 <div align="center">
  
@@ -7,17 +7,10 @@
 </div>
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/ea0a6aa3-a8f3-4c99-839d-e6cbc4458b8a" />
 
-<!--
-**cutekomakun/cutekomakun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+<img width="819" height="153" alt="image" src="https://github.com/user-attachments/assets/d3f2a71c-7b3a-4a95-95cd-df844ab8a0f0" />
+&ensp;
+<div align="center">
+hello! Hi *smiles*
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ my name is Asta and i am #evil and gay
