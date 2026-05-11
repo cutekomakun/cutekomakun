@@ -20,4 +20,9 @@ hello! Hi *smiles*
 
   ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
   ﹕୭ . FANDOMS : 
+ 
   ﹕❀ . DNI : proship , comship , loli/shotacons , vivziepop media fans(sorry) , above 19(unless already friends)
+
+&emsp;
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zf3abdngz5covaptki34xnt2li&cover_image=true&theme=default&show_offline=false&background_color=1a1f23&interchange=false&profanity=false&bar_color=4eb17e)](https://github.com/kittinan/spotify-github-profile)
+</div>
