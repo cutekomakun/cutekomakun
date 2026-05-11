@@ -20,7 +20,7 @@ hello! Hi *smiles*
 
   ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
   
-  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , amazing world of gumball , enstars , disasterous life of saiki k , alien stage , pokemon
+  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , amazing world of gumball , enstars , disasterous life of saiki k , alien stage , pokemon
  
   ﹕❀ . DNI : proship , comship , loli/shotacons , vivziepop media fans(sorry) , above 19(unless already friends)
 
