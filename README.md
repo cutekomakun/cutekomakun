@@ -22,7 +22,7 @@ hello! Hi *smiles*
   
   ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , amazing world of gumball , enstars , disasterous life of saiki k , alien stage , pokemon
  
-  ﹕❀ . DNI : proship , comship , loli/shotacons , other basic dni , vivziepop media fans(sorry) , above 19(unless already friends)
+  ﹕❀ . DNI : proship , comship , loli/shotacons , other basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people
 
 thank u for reading!
 
