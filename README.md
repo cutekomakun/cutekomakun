@@ -15,15 +15,15 @@
 <div align="center">
 hello! Hi *smiles*
 
-.☘︎ ݁˖ my name is Asta and i am #evil and gay
+.☘︎ ݁˖ my name is Asta and i am #evil and gay.  Hi i love my friends! if we ever end up talking please tell me if  any bit of my humor and the way i talk is a bother. 
 &ensp;
 
   ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
   
-  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , amazing world of gumball , enstars , disasterous life of saiki k , alien stage , pokemon
+  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , pokemon , check strawpage 4 more
  
-  ﹕❀ . DNI : proship , comship , loli/shotacons , other basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people
-
+  ﹕❀ . DNI : basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people , again, pls check strawpage 4 more
+  
 thank u for reading!
 
 &ensp;
