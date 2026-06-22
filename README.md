@@ -20,9 +20,9 @@ hello! Hi *smiles*
 
   ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
   
-  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , pokemon , check strawpage 4 more
+  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , creepypasta , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , check strawpage 4 more
  
-  ﹕❀ . DNI : basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember, ships: komanami, shinnaga, tenkiyo, oumeno, togafuka, komamiki
+  ﹕❀ . DNI : basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember, ships: komanami, shinnaga, tenkiyo, oumeno, togafuka, komamiki (stay back if u ship Nagito w/ girls in general im sorry That man fruity as hell)
   
 thank u for reading!
 
